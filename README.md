@@ -1,0 +1,2 @@
+후원사 뉴스02 전용 영구페이지 입니다 <a href='https://news02.iwinv.net/'>뉴스02</a><br>
+<a href='https://news02.iwinv.net/free?page=1'>1페이지</a> <a href='https://news02.iwinv.net/free?page=2'>2페이지</a> <a href='https://news02.iwinv.net/free?page=3'>3페이지</a> <a href='https://news02.iwinv.net/free?page=4'>4페이지</a> <a href='https://news02.iwinv.net/free?page=5'>5페이지</a><br>
